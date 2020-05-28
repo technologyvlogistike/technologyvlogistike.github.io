@@ -1,1 +1,0 @@
-# technologyvlogistike.github.io
